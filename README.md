@@ -1,4 +1,8 @@
-Tài liệu tham khảo: https://chatgpt.com/c/678466c9-e850-8000-b2e0-ae3995927381
+Tài liệu tham khảo: 
+
+https://chatgpt.com/c/678466c9-e850-8000-b2e0-ae3995927381
+
+https://www.youtube.com/watch?v=QQliGCtqD2w
 
 Nguyễn Tùng Dương - 22se1
 
